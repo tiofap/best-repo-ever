@@ -1,2 +1,2 @@
 # best-repo-ever parte 2
-Ronaldo Lindo e Gostoso e Maravilhoso
+Ronaldo Lindo e Gostoso
